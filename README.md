@@ -1,3 +1,3 @@
 # JAI
 this is yogyta sorout
-i am good
+i am good(actually bad)
